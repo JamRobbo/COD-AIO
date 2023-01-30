@@ -2,7 +2,8 @@
 
 
 
-Modern Warfare spoofer, really quick and ud, spoofers serials and network.
+Modern Warfare spoofer and full cheat, spoofer is really quick and ud it spoofs all serials and network.
+Cheat Menu us also fully undectected if you use together YOU WILL NEVER GET BANNED!!
 
 10 stars and i'll drop the full source code
 
